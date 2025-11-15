@@ -12,4 +12,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: richardmou1692@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I enjoy food
+- WOAHHHHHH A NEW BRANCH THIS IS SOOOO COOOL
+- OMG!!!!!!
 -->
